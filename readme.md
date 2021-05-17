@@ -1,0 +1,5 @@
+Pizza has a long history. Flatbreads with toppings were consumed by the ancient Egyptians, Romans and Greeks. (The latter ate a version with herbs and oil, similar to today’s focaccia.) But the modern birthplace of pizza is southwestern Italy's Campania region, home to the city of Naples.
+
+Founded around 600 B.C. as a Greek settlement, Naples in the 1700s and early 1800s was a thriving waterfront city. Technically an independent kingdom, it was notorious for its throngs of working poor, or lazzaroni. “The closer you got to the bay, the more dense their population, and much of their living was done outdoors, sometimes in homes that were little more than a room,” says Carol Helstosky, author of Pizza: A Global History and associate professor of history at the University of Denver.
+
+These Neapolitans required inexpensive food that could be consumed quickly. Pizza—flatbreads with various toppings, eaten for any meal and sold by street vendors or informal restaurants—met this need. “Judgmental Italian authors often called their eating habits ‘disgusting,’” Helstosky notes.
